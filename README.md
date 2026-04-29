@@ -1,0 +1,4 @@
+- Supported global Trust & Safety operations for YouTube monetization across the US, Southeast Asia, and Northeast Asia
+- Operated in a high-volume, time-sensitive, quality-critical environment impacting platform trust and revenue
+- Led and scaled a team from 32 to 46 specialists
+- Drove performance across quality, productivity, and turnaround time through operational oversight and team leadership
